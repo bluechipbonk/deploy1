@@ -1,4 +1,4 @@
-# 💎 BLUECHIP - The First *Truly Useless* Bluechip Memecoin on Solana
+# 💎 BLUECHIP - The Bluechip Memecoin on Solana
 
 > "It’s not just a meme. It’s a mirror." – CT anon, 2025
 
